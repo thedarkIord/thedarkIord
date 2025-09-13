@@ -1,3 +1,20 @@
-![Untitleddesign-ezgif com-effects](https://github.com/user-attachments/assets/13936673-0ce2-4a28-85af-bd7cb0138804)
+Am NOT OKAY AFTER THE AVA12,. EVERYONE IS GETTING AN PUBLIC EXECUTION.
 
-white mode is preferred for satisfactory accessibility! 
+
+
+![G0umTybbcAIYmsD](https://github.com/user-attachments/assets/64620eed-8c29-4a37-8f86-ce740be146a1)
+
+⠀⠀
+⠀⠀
+
+⠀⠀
+⠀⠀
+
+
+❁ ` · ➵ . 
+⠀⠀
+⠀⠀
+
+⠀⠀
+
+![G0uuRNFWwAA9Xt-](https://github.com/user-attachments/assets/f03ddc2f-b8a0-42b2-85ea-35b66129d0ce)
